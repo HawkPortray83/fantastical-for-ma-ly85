@@ -1,4 +1,4 @@
-#  
+#  Enhance Fantastical for macOS with best Fantastical for macOS Utility | cloud backup + goal tracking, the #1 utility. Includes cloud backup and goal tracking for a smoother
 
 
 
